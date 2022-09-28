@@ -1,3 +1,3 @@
-_**Effort only fully releases its reward after a person refuses to quit.**_
+_**He who is not courageous enough to take risks will accomplish nothing in life.**_
 
-Napoleon Hill
+Mohamad Ali
